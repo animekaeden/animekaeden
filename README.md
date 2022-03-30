@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Kaeden
+- 👀 I’m interested in gaming and other techy stuff.
+- 🌱 I’m currently learning how to code on replit.
+- 💞️ I’m looking to collaborate on nothing right now.
+- 📫 How to reach me --}  willebykaeden18@gmail.com
